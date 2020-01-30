@@ -1,0 +1,1 @@
+Ken Hilburn sent this link to protect your device: https://central.bitdefender.com/download?install_code=f7396590-82ca-4bcc-80af-009e37b5759d&cid=ipl%7Cc%7Ccentral_web%7Cdeploy_flow&lang=en_US
